@@ -2,4 +2,4 @@
 - 👀 I’m interested in making an organization's life easier through data and automations.
 - 🌱 I’m currently learning AI for trading.
 - 💞️ I’m looking to collaborate on development content in spanish.
-- 📫 How to reach me whatsapp 6505058183
+- 📫 How to reach me whatsapp 6502456546
